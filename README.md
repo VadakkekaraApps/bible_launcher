@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-**Effective Date:** [5/08/24
+**Effective Date:** 5/08/24
 
 **1. Introduction**
 
